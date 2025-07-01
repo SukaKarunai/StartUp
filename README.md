@@ -5,6 +5,7 @@
 Hey SukaKarunai!
 
 Mona here. I'm done preparing your exercise. Hope you enjoy! 💚
+Just a test here
 
 Remember, it's self-paced so feel free to take a break! ☕️
 
